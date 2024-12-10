@@ -1,2 +1,0 @@
-# syukriyansyah-ipb
-TUGAS AKHIR
